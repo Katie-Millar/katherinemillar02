@@ -1,5 +1,5 @@
 
- ## 👋 Hi 
+ ## 👋 Hi, I'm @katherinemillar02
  
  **__📚 A Biological Sciences PhD Student at University of East Anglia__**
 
